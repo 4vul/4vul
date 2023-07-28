@@ -1,4 +1,2 @@
-Hello. I'm some random guy that does random things in random places. 
-I play videogames and I mod those videogames.
-It's nothing special.
-Why are you here?
+Hello. I'm 4vul. For the most part, I do random things in random places. 
+I play games, draw things, and have big ideas.
