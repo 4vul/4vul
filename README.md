@@ -1,2 +1,2 @@
-Hello. I'm 4vul. For the most part, I do random things in random places. 
-I play games, draw things, and have big ideas.
+Hey. I'm 4vul, pronounced 'four-vuh-ll.'
+I play games, primarily Dungeons & Dragons, and I sometimes make digital art.
