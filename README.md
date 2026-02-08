@@ -1,1 +1,1 @@
-Hey. I'm katty. I play games and make them, sometimes. ^^
+Hey. I'm Katty. I play games and make them, sometimes. ^^
